@@ -6,8 +6,6 @@ category: example2
 
 #### بِسْمِ ٱللَّٰهِ
 
-## Invitación al Islam
-
 ##### Introducción al Islam
 
 Te invito cordialmente a aprender sobre el mensaje del Islam. El primer recurso es una grabación de audio que contiene reflexiones sobre la vida y la búsqueda de la verdad, y el otro es un librito que presenta la creencia y prácticas fundamentales de la fe islámica:
