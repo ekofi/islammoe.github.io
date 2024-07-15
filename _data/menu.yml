@@ -8,13 +8,3 @@ entries:
         url: /invitacion
       - title: Una guía para estudiar el Islam
         url: /guia
-
-  - title: all posts
-    post_list:
-      limit: 5
-      show_more: true
-      show_more_text: See archive...
-      show_more_url: archive.html
-
-  - title: Sobre Mi
-    url: /sobre_mi
