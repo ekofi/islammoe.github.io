@@ -21,12 +21,12 @@ Abrazar el Islam es fácil de hacer. No es necesario que haya testigos para hace
 
 **Ash-hadu an laa ilaaha ill-Allaah wa ash-hadu anna Muhammadan ‘abduhu wa Rasooluhu**
 
-Esto significa: Atestiguo que no hay Dios que merezca ser adorado escepto Allah y atestiguo que Muhammad es Su siervo y mensajero.
+Esto significa: Atestiguo que no hay Dios que merezca ser adorado, excepto Allah, y atestiguo que Muhammad es Su siervo y mensajero.
 
 Si has dicho esto y creíste en lo que dijiste, eres un musulmán desde entonces. No te tardas en decir el testimonio de fe. No sabemos cuándo será la hora de nuestra muerte.
 
 Después de eso, enfócate en aprender sobre los temas más integrales de esta religión como el tawhid, los seis pilares de la fe, y los cinco pilares del Islam.
 
-Algo más que quiero informarte es sobre la creencia de Jesús en el Islam. En varias denominaciones de la Cristiandad, Jesús es considerado algo divino o es considerado Dios. En el Islam, creemos que Jesús fue un mensajero y siervo de Dios. Pero no creemos que sea divino ni que sea Dios. Fue creado por Dios con la palabra "Sé" en el vientre de María. Nació de una madre sin tener un papá. Esto es algo que todos musulmanes tienen que creer.
+Algo más que quiero informarte es sobre la creencia de Jesús en el Islam. En varias denominaciones de la Cristiandad, Jesús es considerado algo divino o es considerado Dios. En el Islam, creemos que Jesús fue un mensajero y siervo de Dios. Pero no creemos que sea divino ni que sea Dios. Fue creado por Dios con la palabra "Sé" en el vientre de María. Nació de una madre sin tener un papá. Esto es algo que todos los musulmanes tienen que creer.
 
-Narró Ubada Ibn As Samit -que Al-láh esté complacido con él- que el Profeta -que la paz y las bendiciones de Alláh sean con él- dijo: "Quien da testimonio de que nadie tiene derecho a ser adorado excepto Alláh, Único, sin asociados, y que Muhámmad es Su siervo y mensajero, que Jesús es Su siervo, mensajero, Su palabra depositada en María y un espíritu proveniente de Él, que el Paraíso es verdadero y el Infierno es verdadero, Alláh lo ingresará al paraíso acorde a sus obras". (Registrado por Al-Bujari y Muslim)
+Narró Ubada Ibn As Samit -que Alláh esté complacido con él- que el Profeta -que la paz y las bendiciones de Alláh sean con él- dijo: "Quien da testimonio de que nadie tiene derecho a ser adorado excepto Alláh, Único, sin asociados, y que Muhámmad es Su siervo y mensajero, que Jesús es Su siervo, mensajero, Su palabra depositada en María y un espíritu proveniente de Él, que el Paraíso es verdadero y el Infierno es verdadero, Alláh lo ingresará al paraíso acorde a sus obras". (Registrado por Al-Bujari y Muslim)
